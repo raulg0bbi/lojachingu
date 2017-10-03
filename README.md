@@ -1,1 +1,2 @@
 # lojachingu
+soon page
